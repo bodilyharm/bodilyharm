@@ -10,4 +10,4 @@ i won't be another number on the screen
 
 shh... i wanna hear you scream,
 
-i wont be another number.
+i won't be another number.
