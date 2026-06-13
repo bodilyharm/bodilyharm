@@ -1,10 +1,6 @@
 <div align="center">
 
- white sound, oceans of dreams
-
-i won't be another number on the screen
- 
-![](https://64.media.tumblr.com/312bd2aa40cd79c3cdb43dbfda3433c4/3860f9ba263db4bf-b4/s400x600/da6acc9a5f09da8d84ba0d16b821fc5b895cb097.gifv)
+![](https://64.media.tumblr.com/622ef7d992a33af4c161ab08d41e84c8/9fdaaff5a30ff596-92/s250x400/ddf4cc7e1b51d80adb93d0fab3a04b6b507067a8.pnj)
 
 
 
