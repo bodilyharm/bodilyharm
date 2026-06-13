@@ -4,6 +4,6 @@
 
 
 
-shh... i wanna hear you scream,
+IM THE HUMAN BUTCHER MASTURBATING DEAD MEAT
 
-i won't be another number.
+MY SEMENS ON YER ROTTEN FLESH ITS THE WANK OF DEATH !
