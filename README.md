@@ -1,6 +1,6 @@
 <div align="center">
 
- white sound, ocean of dreams
+ white sound, oceans of dreams
 
 i won't be another number on the screen
  
