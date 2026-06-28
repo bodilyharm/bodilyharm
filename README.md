@@ -1,11 +1,7 @@
 <div align="center">
 
-![](https://64.media.tumblr.com/622ef7d992a33af4c161ab08d41e84c8/9fdaaff5a30ff596-92/s250x400/ddf4cc7e1b51d80adb93d0fab3a04b6b507067a8.pnj)
+![](https://64.media.tumblr.com/b4ea7b8b5188789806386a0e6a7701e4/69a82dd1bbf9eb48-f8/s400x600/8e35fc81519564d35f5fdd79ad07cac8ae3dd293.pnj)
 
 im gonna push my love
 
-through her skull!
-
-through her skull! 
-
-through her skull!
+through her skull
