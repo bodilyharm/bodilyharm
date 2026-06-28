@@ -1,7 +1,6 @@
 <div align="center">
 
-[![creds](https://64.media.tumblr.com/b4ea7b8b5188789806386a0e6a7701e4/69a82dd1bbf9eb48-f8/s400x600/8e35fc81519564d35f5fdd79ad07cac8ae3dd293.pnj)](https://www.tumblr.com/perennimal/819552169283944448/the-stranger?source=share)
+![](https://64.media.tumblr.com/0d9ea53b1ea8b1c6c22a5c8885678d50/e7c65f20e567d961-07/s500x750/f000b51d513cabb4f820cdef807bd67e3d918e0c.gifv)
 
-im gonna push my love
+i love my catholic angel deer girlfriend
 
-through her skull
